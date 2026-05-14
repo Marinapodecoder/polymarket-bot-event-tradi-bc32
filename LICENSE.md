@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with instant Polymarket Addon | high-frequency-trading + stop-loss-management, the #1 addon. Includes high-frequency-trading and
 
 
 
